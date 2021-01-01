@@ -1,0 +1,1 @@
+# https-github.com-ShiShuMo-Hackintosh-LENOVO-xiaoxin700-ideapad700-Opencore-OC
